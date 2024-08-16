@@ -1,4 +1,4 @@
-- 👋 Hi, I’m random person
+- 👋 Hi, I’m a random weirdo
 <!---
-get a burgor
+get a borgor an cheese grater
 --->
